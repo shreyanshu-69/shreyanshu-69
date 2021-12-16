@@ -26,4 +26,4 @@
 - Death Note 
 - Naruto
 
-<img src="https://tenor.com/view/gif-24157466" />
+
