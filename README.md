@@ -1,7 +1,5 @@
-### Hi there 👋
 
-<!--
-**shreyanshu-69/shreyanshu-69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 ### Hello there, I am Shreyanshu aka Quby 👋
 ## I am a Student, Developer, Gamer!
