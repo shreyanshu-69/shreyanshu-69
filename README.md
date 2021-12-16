@@ -26,4 +26,4 @@
 - Death Note 
 - Naruto
 
-<img src="https://cdn.discordapp.com/attachments/911838057156706324/921045492182433792/uwu_wait_whatttt.gif" width="60" height="60" />
+<img src="https://tenor.com/view/gif-24157466" />
